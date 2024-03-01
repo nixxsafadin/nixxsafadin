@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nixxsafadin
+- 👋 Hi, I’m @bielzin minhoca
 - 👀 I’m interested in funk
 - 🌱 I’m currently learning informatica
 - 💞️ I’m looking to collaborate on tinder
